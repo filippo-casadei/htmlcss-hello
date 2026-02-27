@@ -1,0 +1,1 @@
+"Dovrebbe stare in un museo!" cit. Ezreal, il prodigo esploratore.
